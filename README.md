@@ -1,5 +1,7 @@
 ## Hello! This my about me. 
 
+![](https://komarev.com/ghpvc/?username=sonyaichinisannya&label=VIEWS)
+
 dec 31 - birthday. istp-t | 9w8 | ttype 9-6-4
 
 i'm a egyptian. And proud of it. heh.
