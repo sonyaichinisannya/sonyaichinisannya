@@ -1,4 +1,5 @@
-## Hello! This my about me. 
+# Hello! This my about me. 𓆃
+
 <img width="380" height="41" alt="432022s1vheyatjs" src="https://github.com/user-attachments/assets/7f55bcd4-51fc-43af-8012-d6989283e32d" />
 
 
@@ -19,9 +20,9 @@ please bear with me, i'm hotheaded and often act on impulse. give me some time t
 I ship my oc with knuckles, which means i could get a bit petty about other ships like sonknux, knuxadow, knuxouge, or other ocxknuckles ships.
 in the most respectful way possible, sonknux and knuxadow are tied to trauma, so be careful ok? if you shove those in my face, I'm hiding you. or worse, I could start insulting you.
 
-can i be known as knuckles of the zone now HEHEHE <img width="30" height="32" alt="knuckles-jollyrancher" src="https://github.com/user-attachments/assets/e8e2225e-a8f7-4c8c-95db-b5772139ee58" />
+can i be known as knuckles of the pony town sonic zone now HEHEHE <img width="30" height="32" alt="knuckles-jollyrancher" src="https://github.com/user-attachments/assets/e8e2225e-a8f7-4c8c-95db-b5772139ee58" />
 
-fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta
+fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, alnst
 
 
 
