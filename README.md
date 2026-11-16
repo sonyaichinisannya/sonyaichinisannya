@@ -17,5 +17,6 @@ in the most respectful way possible, sonknux and knuxadow are tied to trauma, so
 
 can i be known as knuckles of the zone now
 
-<img src="https://pin.it/3jUdaOf1w.gif" alt="knucklws" width="500" />
+<img width="200" height="200" alt="31b5393423a90df20287e62942c2b46a" src="https://github.com/user-attachments/assets/065c4118-235f-4a53-b31b-d22c060b2a76" />
+
 
