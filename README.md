@@ -1,6 +1,7 @@
 # Hello! This my about me. 𓆃
 
-[![Play Audio](https://shields.io▶_Play_Track-MP3-blue?style=for-the-badge)][It's not like I like heavy metal!!.mp3](https://github.com/user-attachments/files/34986053/It.s.not.like.I.like.heavy.metal.mp3)
+[It's not like I like heavy metal!!.mp3](https://github.com/user-attachments/files/34986053/It.s.not.like.I.like.heavy.metal.mp3) <img width="40" height="40" alt="06a8d4b061209243e57762c1e1736c7e" src="https://github.com/user-attachments/assets/5db8be1b-23a7-445f-ba87-2521644e9518" />
+
 
 
 
