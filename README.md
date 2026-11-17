@@ -9,8 +9,8 @@ dec 31 - birthday. istp-t | 9w8 | ttype 9-6-4
 
 i'm half russian and egyptian. <img width="40" height="29" alt="423105ljta5cuyci" src="https://github.com/user-attachments/assets/4e3fcfb4-7a49-4caf-a331-3fc6226bd15d" />
 
-I'm a minor. though i already said that. don't be weird. I only see my friends as family figures. if someone is much older, then that's legit big sibling figure.
-basic dni applies. don't be racist, xenophobic, ableist. 
+I'm a minor. don't be weird. I only see my friends as family figures. if someone is much older, then that's legit big sibling figure.
+basic dni applies. don't be racist, xenophobic, ableist. if you're a creep like a pedo, I won't hesitate to block.
 
 <img width="386" height="56" alt="d9c191b-479b3e23-3c13-4f76-aeb1-053e1a61744e" src="https://github.com/user-attachments/assets/e5dff514-2390-4ceb-aef1-c2b90721a767" />
 
@@ -25,4 +25,4 @@ can i be known as knuckles of the pony town sonic zone now HEHEHE <img width="30
 fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, alnst
 
 
-
+random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bit insecure of my voice, and the accent might be off putting
