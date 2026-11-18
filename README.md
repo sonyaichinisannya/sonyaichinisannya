@@ -31,3 +31,8 @@ fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, al
 
 
 random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bit insecure of my voice, and the accent might be off putting
+
+random messages i copied 🧃
+>[raderikiss | do you believe] becoz i am knuckls (ok, thats me)
+>[Sonic⚡🫧 ← cudcomf ソニック] *cracks* (slime her out pls lol)
+>[🐈⬛💢Shadow ←cudcomf シャドー] My name is Dumbah shadih (<- idiota)
