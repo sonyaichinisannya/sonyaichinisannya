@@ -34,5 +34,7 @@ random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bi
 
 random messages i copied 🧃
 >[raderikiss | do you believe] becoz i am knuckls (ok, thats me)
+
 >[Sonic⚡🫧 ← cudcomf ソニック] *cracks* (slime her out pls lol)
+
 >[🐈⬛💢Shadow ←cudcomf シャドー] My name is Dumbah shadih (<- idiota)
