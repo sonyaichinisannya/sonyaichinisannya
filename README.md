@@ -3,9 +3,6 @@
 [It's not like I like heavy metal!!.mp3](https://github.com/user-attachments/files/34986053/It.s.not.like.I.like.heavy.metal.mp3) <img width="40" height="40" alt="06a8d4b061209243e57762c1e1736c7e" src="https://github.com/user-attachments/assets/5db8be1b-23a7-445f-ba87-2521644e9518" />
 
 
-<img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/f39f251b-fd43-4d0d-8696-69389a77b8ea" />
-
-
 <img width="380" height="41" alt="432022s1vheyatjs" src="https://github.com/user-attachments/assets/7f55bcd4-51fc-43af-8012-d6989283e32d" />
 
 
@@ -23,6 +20,9 @@ basic dni applies. don't be racist, xenophobic, ableist, bigot in general. if yo
 
 i'm an introvert. I might come off as ignorant or harsh, but i don't mean it at all. 
 please bear with me, i'm hotheaded and often act on impulse. give me some time to cool off if i seem angry. (For, thats why i kin knuckles.) I guess i often become uninterested or lazy. don't drag me into dramas. I CAN BITE. <img width="19" height="19" alt="DEE9580-D-5337-4681-850-A-5-B1-E8776-AAAA" src="https://github.com/user-attachments/assets/b5658c86-d735-44bd-b75f-edcd8fa1cdd1" />
+
+
+<img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/f39f251b-fd43-4d0d-8696-69389a77b8ea" />
 
 
 I ship my oc with knuckles, which means i could get a bit petty about other ships like sonknux, knuxadow, knuxouge, or other ocxknuckles ships.
