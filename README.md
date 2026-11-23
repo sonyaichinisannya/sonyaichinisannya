@@ -31,7 +31,7 @@ in the most respectful way possible, sonknux and knuxadow are tied to trauma, so
 
 fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, alnst, jjba
 
-favorite colors :: cyan and teal <img width="128" height="128" alt="1173747214800134144" src="https://github.com/user-attachments/assets/66504589-b695-4ad8-aa06-6cb71a32687f" /> | pink <img width="20" height="20" alt="2jbuuh" src="https://github.com/user-attachments/assets/2982d214-a5ad-4b74-8f86-f858beb3b711" /> | darkkkk brown <img width="20" height="20" alt="0213e6bd477f1348045911a79e0e612ecd3ffc8c" src="https://github.com/user-attachments/assets/0ab55516-211e-41f0-8824-4c45872bfea1" /> | red <img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/b1230de0-0f4b-4bed-a48f-013d630b83d0" />
+favorite colors :: cyan and teal <img width="20" height="20" alt="1173747214800134144" src="https://github.com/user-attachments/assets/66504589-b695-4ad8-aa06-6cb71a32687f" /> | pink <img width="20" height="20" alt="2jbuuh" src="https://github.com/user-attachments/assets/2982d214-a5ad-4b74-8f86-f858beb3b711" /> | darkkkk brown <img width="20" height="20" alt="0213e6bd477f1348045911a79e0e612ecd3ffc8c" src="https://github.com/user-attachments/assets/0ab55516-211e-41f0-8824-4c45872bfea1" /> | red <img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/b1230de0-0f4b-4bed-a48f-013d630b83d0" />
 
 
 
