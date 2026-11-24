@@ -25,7 +25,7 @@ please bear with me, i'm hotheaded and often act on impulse. give me some time t
 <img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/f39f251b-fd43-4d0d-8696-69389a77b8ea" />
 
 
-I ship my oc with knuckles, which means i could get a bit petty about other ships like sonknux, knuxadow, knuxouge, or other ocxknuckles ships.
+I ship my oc with knuckles, which means i could get a bit petty about other ships like sonknux, knuxadow, or other ocxknuckles ships.
 in the most respectful way possible, sonknux and knuxadow are tied to trauma, so be careful ok? if you shove those in my face, I'm hiding you. or worse, I could start insulting you.
 
 - can i be known as knuckles of the pony town sonic zone now please id really like to grr <img width="30" height="32" alt="knuckles-jollyrancher" src="https://github.com/user-attachments/assets/e8e2225e-a8f7-4c8c-95db-b5772139ee58" />
@@ -37,6 +37,18 @@ favorite colors :: cyan and teal <img width="20" height="20" alt="11737472148001
 
 
 random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bit insecure of my voice, and the accent might be off putting
+
+a bit of a vent :: I'm a very lonely person. I often fantasize about having a big, warm friend group. where no one treats someone as no one or a punching bag. preferably with same interests. PREFERABLY Sonic or JJBA or both at the same time. even better if we could meet up and hang out. but that's a rare one, because I live in Egypt, and my experience with kids my age here is... pathetic.
+* the boys are often violent ASF
+* I've had an experience with a 'girl's girl's being toxic as a snake and being violent to me. Uksum billah, Janna, I remember what you did.
+* I had some kids call me a foreigner(agnabeia) because I'm mixed.
+* I have a best friend, but she's older than me, has different interests, and we live in different blocks and I'm too scared to actually visit her (I don't trust her family).
+* I would also love if we could make a game together and I could take part in making like...I dunno. art, voice acting, that's lit my dream.
+
+but...this is far too good to be actually tru. guys if you have a group like that and need a 'Knuckles' for the group PLEASE please with a cherry on top I hope I find y'all bruh.
+
+OH right this shi happened. we had viruses on our computer, baba took it to repair, came back with the f*ckin Win7 installed instead of our crisp Win 10 and now I can't play Roblox or anything (not to mention gov banned Roblox in Egypt)
+bruh.
 
 random messages i copied 🧃
 >[raderikiss | do you believe] becoz i am knuckls (ok, thats me)
