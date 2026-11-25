@@ -8,6 +8,7 @@
 
 dec 31 - birthday. istp-t <img width="40" height="40" alt="26803d8982a7f3ae38070dd8657f9674" src="https://github.com/user-attachments/assets/76cc91cd-a3b1-4747-9c8e-a7653951a378" /> | 9w8 | ttype 9-6-4
 
+i am working on a game!
 
 i'm half russian and egyptian. <img width="40" height="29" alt="423105ljta5cuyci" src="https://github.com/user-attachments/assets/4e3fcfb4-7a49-4caf-a331-3fc6226bd15d" />
 
@@ -16,7 +17,7 @@ basic dni applies. don't be racist, xenophobic, ableist, bigot in general. if yo
 
 <img width="386" height="56" alt="d9c191b-479b3e23-3c13-4f76-aeb1-053e1a61744e" src="https://github.com/user-attachments/assets/e5dff514-2390-4ceb-aef1-c2b90721a767" />
 
-i'm an introvert. I might come off as ignorant or harsh, but i don't mean it at all. 
+i'm an introvert. I might come off as ignorant or harsh, but i don't mean it at all. im also bad with wordsm i mean, i struggle to comfort. i don't wanna go into the fake positive territory like saying 'its ok' 'everything is gonna be ok' but i am present during venting and i assure im reading your messages. im just better with comfort irl.
 please bear with me, i'm hotheaded and often act on impulse. give me some time to cool off if i seem angry. (For, thats why i kin knuckles.) I guess i often become uninterested or lazy. don't drag me into dramas. I CAN BITE. <img width="19" height="19" alt="DEE9580-D-5337-4681-850-A-5-B1-E8776-AAAA" src="https://github.com/user-attachments/assets/b5658c86-d735-44bd-b75f-edcd8fa1cdd1" />
 
 
