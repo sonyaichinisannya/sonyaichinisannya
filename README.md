@@ -6,7 +6,7 @@
 
 ![](https://komarev.com/ghpvc/?username=sonyaichinisannya&label=chao)
 
-dec 31 - birthday. istp-t <img width="40" height="40" alt="26803d8982a7f3ae38070dd8657f9674" src="https://github.com/user-attachments/assets/76cc91cd-a3b1-4747-9c8e-a7653951a378" /> | 9w8 | ttype 9-6-4
+dec 31 - bday | istp-t <img width="40" height="40" alt="26803d8982a7f3ae38070dd8657f9674" src="https://github.com/user-attachments/assets/76cc91cd-a3b1-4747-9c8e-a7653951a378" /> | 9w8 | ttype 9-6-4 | trad and digi artist
 
 i am working on a game!
 
@@ -31,10 +31,12 @@ can i be known as knuckles of the pony town sonic zone now please id really like
 
 fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, alnst, jjba
 
+favorite music / artists / bands :: buck tick, nirvana, marina and the diamonds, crush 40
+
 favorite colors :: cyan and teal <img width="20" height="20" alt="1173747214800134144" src="https://github.com/user-attachments/assets/66504589-b695-4ad8-aa06-6cb71a32687f" /> | pink <img width="20" height="20" alt="2jbuuh" src="https://github.com/user-attachments/assets/2982d214-a5ad-4b74-8f86-f858beb3b711" /> | darkkkk brown <img width="20" height="20" alt="0213e6bd477f1348045911a79e0e612ecd3ffc8c" src="https://github.com/user-attachments/assets/0ab55516-211e-41f0-8824-4c45872bfea1" /> | red <img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/b1230de0-0f4b-4bed-a48f-013d630b83d0" />
 
 
-```
+
 random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bit insecure of my voice, and the accent might be off putting
 
 a bit of a vent :: I'm a very lonely person. I often fantasize about having a big, warm friend group. where no one treats someone as no one or a punching bag. we could do group activitiespreferably with same interests. PREFERABLY Sonic or JJBA or both at the same time. even better if we could meet up and hang out. but that's a rare one, because I live in Egypt, and my experience with kids my age here is... pathetic.
@@ -46,4 +48,4 @@ a bit of a vent :: I'm a very lonely person. I often fantasize about having a bi
 
 but...this is far too good to be actually tru. guys if you have a group like that and need a 'Knuckles' for the group PLEASE please with a cherry on top I hope I find y'all bruh. OH right this shi happened. we had viruses on our computer, baba took it to repair, came back with the f*ckin Win7 installed instead of our crisp Win 10 and now I can't play Roblox or anything (not to mention gov banned Roblox in Egypt)
 bruh.
-```
+
