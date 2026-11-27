@@ -1,10 +1,15 @@
-# Hello! This my about me. 𓆃
+# a b o u t  m e . 𓆃
 
 [It's not like I like heavy metal!!.mp3](https://github.com/user-attachments/files/34986053/It.s.not.like.I.like.heavy.metal.mp3) <img width="40" height="40" alt="06a8d4b061209243e57762c1e1736c7e" src="https://github.com/user-attachments/assets/5db8be1b-23a7-445f-ba87-2521644e9518" />
 
+<div align="center">
+
 <img width="1280" height="131" alt="blue" src="https://github.com/user-attachments/assets/8f275146-c1a2-4acb-8523-9306be8513b6" />
 
+
+  
 ![](https://komarev.com/ghpvc/?username=sonyaichinisannya&label=chao)
+
 
 dec 31 - bday | istp-t <img width="40" height="40" alt="26803d8982a7f3ae38070dd8657f9674" src="https://github.com/user-attachments/assets/76cc91cd-a3b1-4747-9c8e-a7653951a378" /> | 9w8 | ttype 9-6-4 | trad and digi artist
 
@@ -35,7 +40,7 @@ favorite music / artists / bands :: buck tick, nirvana, marina and the diamonds,
 
 favorite colors :: cyan and teal <img width="20" height="20" alt="1173747214800134144" src="https://github.com/user-attachments/assets/66504589-b695-4ad8-aa06-6cb71a32687f" /> | pink <img width="20" height="20" alt="2jbuuh" src="https://github.com/user-attachments/assets/2982d214-a5ad-4b74-8f86-f858beb3b711" /> | darkkkk brown <img width="20" height="20" alt="0213e6bd477f1348045911a79e0e612ecd3ffc8c" src="https://github.com/user-attachments/assets/0ab55516-211e-41f0-8824-4c45872bfea1" /> | red <img width="20" height="20" alt="red" src="https://github.com/user-attachments/assets/b1230de0-0f4b-4bed-a48f-013d630b83d0" />
 
-
+</div>
 
 random thought: I'd like to voice act sometime, but I'm way too shy and I'm a bit insecure of my voice, and the accent might be off putting
 
