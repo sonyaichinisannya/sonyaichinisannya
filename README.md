@@ -1,6 +1,5 @@
-# a b o u t  m e . 𓆃
+#     about me 🌺
 
-[It's not like I like heavy metal!!.mp3](https://github.com/user-attachments/files/34986053/It.s.not.like.I.like.heavy.metal.mp3) <img width="40" height="40" alt="06a8d4b061209243e57762c1e1736c7e" src="https://github.com/user-attachments/assets/5db8be1b-23a7-445f-ba87-2521644e9518" />
 
 <div align="center">
 
@@ -8,7 +7,7 @@
 
 
   
-![](https://komarev.com/ghpvc/?username=sonyaichinisannya&label=chao)
+![](https://komarev.com/ghpvc/?username=sonyaichinisannya&label=chao&color=green)
 
 
 dec 31 - bday | istp-t <img width="40" height="40" alt="26803d8982a7f3ae38070dd8657f9674" src="https://github.com/user-attachments/assets/76cc91cd-a3b1-4747-9c8e-a7653951a378" /> | 9w8 | ttype 9-6-4 | trad and digi artist
@@ -32,7 +31,7 @@ please bear with me, i'm hotheaded and often act on impulse. give me some time t
 I ship my oc with knuckles, which means i could get a bit petty about other ships like sonknux, knuxadow, or other ocxknuckles ships.
 in the most respectful way possible, sonknux and knuxadow are tied to trauma, so be careful ok? if you shove those in my face, I'm hiding you. or worse, I could start insulting you.
 
-can i be known as knuckles of the pony town sonic zone now please id really like to grr <img width="30" height="32" alt="knuckles-jollyrancher" src="https://github.com/user-attachments/assets/e8e2225e-a8f7-4c8c-95db-b5772139ee58" />
+can i be known as knuckles of the pony town sonic zone now please id really like to grr <img width="20" height="20" alt="knuckles-jollyrancher" src="https://github.com/user-attachments/assets/e8e2225e-a8f7-4c8c-95db-b5772139ee58" />
 
 fandoms :: sonic, ddlc, the apothecary diaries, gachiakuta, epic the musical, alnst, jjba
 
